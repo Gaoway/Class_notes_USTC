@@ -5,3 +5,5 @@ Nov.1st 2020 add computer networking
 
 ![](images/哇的一下就哭了.jpg)
 
+## 我危 ———— 9.21 AM Nov 12th
+
